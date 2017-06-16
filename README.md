@@ -1,4 +1,6 @@
 # perpustakaan
 all over about library 
-,,,in library absouldly book ,,,
+in library absolute not only books
+ but can be made
+The source of all sources of knowledge
 
